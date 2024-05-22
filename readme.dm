@@ -1,1 +1,1 @@
-lee la documentacion
+taller info
